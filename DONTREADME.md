@@ -1,3 +1,3 @@
 Well, since you came here, I'll tell you the top secret of this world is 42...
-Yeah, I'm not joking that's it.
-Send me a mail and let me know if you solved the challenge I'll tell you the second part of the secret then ;)
+Yeah, I'm not joking, that's it.
+Send me a mail and let me know if you solved the challenge, I'll tell you the second part of the secret then ;)
